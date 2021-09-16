@@ -9,3 +9,30 @@
 6. To make the red pepper dip, add the soaked softened cashews and all the other dip ingredients to a blender with the 100ml ml of fresh water and remaining dip ingredients. Blend until very smooth.   
   Transfer to a bowl and top within some chopped olives, roasted red peppers and basil
 7. When the pasta chips in the air fryer/oven are cooked and nice and crispy, toss immediately in the spice mix and serve with the lovely dip. Enjoy! 
+
+### INGREDIENTS
+* 200 g Dry rigatoni or tube pasta of choice 
+* 30 g Vegan parmesan or white cheddar cheese grated vegan
+* 15 g Breadcrumbs
+* 1/2 tsp Paprika
+* pinch Salt
+* pinch Pepper
+* 1 tbsp Oil or pesto of choice
+
+### Spice Mix
+* 1/2 tsp Sea salt or garlic/onion salt 
+* 1/4 tsp Cayenne pepper – less if you prefer less heat 
+* 3 tsp Toasted sesame seeds – crushed
+
+### Red Pepper Dip
+* 175 g Raw cashew nuts
+* 2 tsp Garlic Powder
+* 50 g Roasted red pepper (from a jar)
+* 1 Lemon
+* 1/2 tsp Salt
+* 1/2 tsp Black Pepper
+* pinch Chilli Flakes
+* 100 ml Water
+
+> ### Garnish for Dip
+> * A few Basil leaves – optional
